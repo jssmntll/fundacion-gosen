@@ -1,1 +1,1 @@
-# Fundación Gosén "Tierra de Bendicón"
+# Fundación Gosén "Tierra de Bendición"
